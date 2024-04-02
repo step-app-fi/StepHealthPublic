@@ -23,7 +23,7 @@ For the purposes of this Privacy Policy:
 
 
 
-- __Company__ (referred to as either "the Company", "We", "Us" or "Our" in this Agreement) refers to Step Group L.L.C-FZ, Dubai at Business Center 1, M Floor, The Meydan Hotel, Nad Al Sheba, Dubai, U.A.E..
+- __Company__ (referred to as either "the Company", "We", "Us" or "Our" in this Agreement) refers to Step Labs LLC-FZ, Dubai at Business Center 1, M Floor, The Meydan Hotel, Nad Al Sheba, Dubai, U.A.E..
 
 
 
